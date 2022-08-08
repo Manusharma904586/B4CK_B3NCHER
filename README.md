@@ -4,7 +4,7 @@ MILKY WAY
 
 <h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
 
-<p align="center"><a href="https://t.me/rudra_hun_vaii"><img src="https://te.legra.ph/file/91d82bf74b7a75468f5ef.jpg" width="400"></a></p>
+<p align="center"><a href="https://t.me/GALAX_yyy"><img src= width="400"></a></p>
 
 
 > ⭐️ Thanks to everyone for using THIS OP SEMX SPAM BOT, That is the greatest pleasure we have !
